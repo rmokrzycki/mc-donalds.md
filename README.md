@@ -20,8 +20,8 @@ ___________________________________________________________________
 ___________________________________________________________________
 Pamiętaj! **Jesteś tym co jesz!** Nie daj się skusić darmowym cisteczkiem…
 ___________________________________________________________________
-|Header |Column 1 | Column 2 | Column 3  | 
+|Nazwa|Błonnik| Cukier | Sól | 
 |:--- |:---- |:----:| ----:|
-|1. Row| is | is | is  |
-|2. Row| left | nicely | right  |
-|3. Row| aligned | centered | aligned  |  
+|1. BigMac| 3,1g | 10% | 38%  |
+|2. Frytki| 5g | 1% | 17%  |
+|3. Ciasteczko| 1,4g | 10% | 8% |
