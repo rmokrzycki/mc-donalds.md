@@ -7,10 +7,9 @@ __________________________________________________________________
 Jedno z naszych wyjść na przerwę obiadową zakończyło się darmowym ciasteczkiem otrzymanym za długie oczekiwanie na zamówienie.
 :laughing::laughing::laughing::laughing::laughing::laughing:
 ___________________________________________________________________
-> Wniosek
-Jedzenia za zdrowego nie mają! 
+Wniosek: Jedzenia za zdrowego nie mają! 
 ___________________________________________________________________
-![](http://i.wp.pl/a/f/jpeg/32011/fat_boy01.jpeg)
+          ![](http://i.wp.pl/a/f/jpeg/32011/fat_boy01.jpeg)
 ___________________________________________________________________
 Ale o klienta dbają
 ___________________________________________________________________
