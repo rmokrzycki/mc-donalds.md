@@ -4,7 +4,7 @@ Darmowe ciasteczko
 __________________________________________________________________
 ![](http://www.mcdonalds.pl/assets/Uploads/ciastko-jablkowe.png)
 __________________________________________________________________
-Jedno z naszych wyjść na przerwę obiadową przed zajciami z Technologii Int... zakończyło się darmowym ciasteczkiem otrzymanym za długie oczekiwanie na zamówienie.
+Jedno z naszych wyjść na przerwę obiadową przed zajęciami z Technologii Int... zakończyło się darmowym ciasteczkiem otrzymanym za długie oczekiwanie na zamówienie.
 :laughing::laughing::laughing::laughing::laughing::laughing:
 ___________________________________________________________________
 Wniosek: Jedzenia za zdrowego nie mają! 
@@ -18,7 +18,7 @@ ___________________________________________________________________
 
 [McDonald](https://www.mcdonalds.pl/)
 ___________________________________________________________________
-Pamiętaj! **Jesteś tym co jesz!** Nie daj się skusić darmowym cisteczkiem…
+Pamiętaj! **Jesteś tym co jesz!** Nie daj się skusić darmowym ciasteczkiem…
 ___________________________________________________________________
 Kilka cennych informacji:
 
