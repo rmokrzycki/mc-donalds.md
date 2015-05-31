@@ -1,3 +1,3 @@
-########## wycieczka-do-mc-donalds
+# wycieczka-do-mc-donalds
 Darmowe ciasteczko
 ;)
