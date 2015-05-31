@@ -9,7 +9,7 @@ Jedno z naszych wyjść na przerwę obiadową zakończyło się darmowym ciastec
 ___________________________________________________________________
 Wniosek: Jedzenia za zdrowego nie mają! 
 ___________________________________________________________________
-          ![](http://i.wp.pl/a/f/jpeg/32011/fat_boy01.jpeg)
+![](http://i.wp.pl/a/f/jpeg/32011/fat_boy01.jpeg)
 ___________________________________________________________________
 Ale o klienta dbają
 ___________________________________________________________________
