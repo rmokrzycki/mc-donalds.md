@@ -11,9 +11,11 @@ Wniosek: Jedzenia za zdrowego nie mają!
 ___________________________________________________________________
 ![](http://i.wp.pl/a/f/jpeg/32011/fat_boy01.jpeg)
 ___________________________________________________________________
-Ale o klienta dbają
+Ale o klienta dbają!
 ___________________________________________________________________
 ![](http://niedlatelewizjin.blox.pl/resource/d.jpg)
 ___________________________________________________________________
 
 [McDonald](https://www.mcdonalds.pl/)
+___________________________________________________________________
+Pamiętaj! **Jesteś tym co jesz!** Nie daj się skusić darmowym cisteczkiem…
